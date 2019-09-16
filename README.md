@@ -1,1 +1,1 @@
-# FunStory
+# FunnyStory
